@@ -13,4 +13,5 @@ Secondly, i'm actively learning about any sorts of AI's functions (machine learn
 
 ---
 📞 **Want to contact me to share future opportunities with me ?** 
+
 [LinkedIn](https://www.linkedin.com/in/michel-bui-strasbourg/) | [Facebook](https://www.facebook.com/profile.php?id=61572921323514) | [Instagram](https://www.instagram.com/niburusvn/?next=%2F)
